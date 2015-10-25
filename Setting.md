@@ -3,3 +3,4 @@ Verbal Que
  * Attack the ball.
  * Force comes from the wrists.
  *  **Lead with Wrists, finish with elbows**
+ *  Imagine pouring a two liter bottle on coke on your forehead.
