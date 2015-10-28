@@ -5,6 +5,7 @@ Verbal Que
  *  **Lead with Wrists, finish with elbows**
  *  Imagine pouring a two liter bottle on coke on your forehead.
  *  Moving to the ball before setting
+
 * Feet shoulder width apart or slightly wider with one foot slightly ahead of the other
 * Knees bent slightly & weight evenly distributed on the balls of feet
 * Hands are cocked in anticipation of the set with your fingers firm and elbows out at a 45 and 90 degree angle.
